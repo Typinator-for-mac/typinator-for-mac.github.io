@@ -1,0 +1,1 @@
+# typinator-for-mac.github.io
